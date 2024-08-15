@@ -11,7 +11,7 @@
 
 - 🔭 I’m currently working on **connectour**
 
-- 📫 How to reach me **nivix@gmail.com**
+- 📫 How to reach me **nivix30@gmail.com**
 
 - 📄 Know about my experiences [https://docs.google.com/document/d/1LGpN66gwIISDurghf6lpE8RgATWU7DIX/edit?usp=sharing&ouid=112895636066171274087&rtpof=true&sd=true](https://docs.google.com/document/d/1LGpN66gwIISDurghf6lpE8RgATWU7DIX/edit?usp=sharing&ouid=112895636066171274087&rtpof=true&sd=true)
 
